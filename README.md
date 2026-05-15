@@ -165,7 +165,7 @@ For inquiries about this website or MS Dhoni's achievements, visit the Contact U
 
 ## 📄 License
 
-© 2024 MS Dhoni Fan Page. All rights reserved.
+© 2025 MS Dhoni Fan Page. All rights reserved.
 
 ## 🙏 Acknowledgments
 
